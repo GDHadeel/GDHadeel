@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GDHadeel
+- 👋 Hi, I’m Hadeel
 
 - 🎓 College student
 
