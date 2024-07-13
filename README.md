@@ -1,3 +1,7 @@
+
+![ai](https://github.com/user-attachments/assets/1525a879-a346-4418-9535-f6e2602b09c5)
+
+
 - 👋 Hi, I’m Hadeel
 
 - 🎓 College student
